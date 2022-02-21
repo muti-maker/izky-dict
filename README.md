@@ -1,0 +1,1 @@
+# izky-dict
